@@ -1,2 +1,5 @@
 # the-psychiaters-terrorist-businessmodel
-haldol &amp; wheelchairs
+
+'haldol & wheelchairs'
+
+2092-2022
